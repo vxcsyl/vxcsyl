@@ -4,5 +4,5 @@ im lucas, a full-time freelance roblox developer since 2018, been around on robl
 
 i dont really have any fucking clue how to program so best not to ask me :>)
 
-prior developer @[VoluteGames](https://github.com/VoluteGames)
+prior developer @[VoluteGames](https://github.com/VoluteGames) and current env lead @[Meta Games](https://github.com/Metatable-Games)
 
