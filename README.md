@@ -2,7 +2,7 @@
 
 im lucas, a full-time freelance roblox developer since 2018, been around on roblox since 2014 though!
 
-i dont really have any fucking clue how to program so best not to ask me :>)
+i don’t really have any fucking clue how to program, so best not to ask me :>)
 
-prior developer @[VoluteGames](https://github.com/VoluteGames) and current env lead @[Meta Games](https://github.com/Metatable-Games)
+prior developer @[VoluteGames](https://github.com/VoluteGames) and current environment lead @[Meta Games](https://github.com/Metatable-Games)
 
