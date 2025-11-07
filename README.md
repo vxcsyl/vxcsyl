@@ -1,4 +1,4 @@
 ## Hi there 👋
 
-I'm currently an Environmental Artist at [Volute Games](https://github.com/VoluteGames), the studio behind the upcoming title, [Hampshire County](https://www.roblox.com/games/18423536480/Hampshire-County) on Roblox.
+I'm currently an Environmental Artist at [Meta Games]([(https://github.com/Metatable-Games)), the studio behind the upcoming title, [Skull Island](https://www.roblox.com/games/79974617197822/Skull-Island) on Roblox.
 
