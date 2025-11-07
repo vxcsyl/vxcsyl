@@ -1,4 +1,6 @@
 ## Hi there 👋
 
-I'm currently the Lead Environmental Artist at [Meta Games](https://github.com/Metatable-Games), the studio behind the upcoming title, [Skull Island](https://www.roblox.com/games/79974617197822/Skull-Island) on Roblox.
+i have no fucking idea how to program so dont ask me :>)
+
+prior developer @VoluteGames
 
