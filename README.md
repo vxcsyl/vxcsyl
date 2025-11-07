@@ -1,6 +1,8 @@
 ## hey whats up dude 👋
 
-i have no fucking idea how to program so dont ask me :>)
+im lucas, a full-time freelance roblox developer since 2018, ive been on roblox since 2014 though!
+
+i dont really have any fucking clue how to program so best not to ask me :>)
 
 prior developer @[VoluteGames](https://github.com/VoluteGames)
 
