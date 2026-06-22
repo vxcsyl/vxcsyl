@@ -1,2 +1,4 @@
-piddle paddle code software engine elephants
+## Hey whats up dude 👋
+
+piddle paddle code software engine elephants 🐘
 
