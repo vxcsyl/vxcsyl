@@ -1,8 +1,2 @@
-## hey whats up dude 👋
-
-im lucas, a full-time professional brick placer since 2018, been around on roblox since 2014 though!
-
-i don’t really have any fucking clue how to program, so best not to ask me :>)
-
-prior developer @[VoluteGames](https://github.com/VoluteGames) 
+piddle paddle code software engine elephants
 
