@@ -1,3 +1,5 @@
-## i prefer the other kind of hub
+## Hey whats up dude 👋
 
-piddle paddle code software engine elephants 
+piddle paddle code software engine elephants
+
+i occasionally code :>)
